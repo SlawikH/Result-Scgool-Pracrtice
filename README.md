@@ -1,1 +1,1 @@
-# Result-Scgool-Pracrtice
+# Result-School-Pracrtice
